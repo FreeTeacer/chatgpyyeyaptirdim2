@@ -1,1 +1,0 @@
-# chatgpyyeyaptirdim2
